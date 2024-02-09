@@ -1,1 +1,1 @@
-# Pancancer Analysis Reveals Kindlin-associated Global Mechanochemical Perturbation
+# Pancancer Analyses Suggest Kindlin-associated Global Mechanochemical Perturbation
